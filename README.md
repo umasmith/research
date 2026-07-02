@@ -2,7 +2,7 @@
 
 Senior Engineering Manager · AI Platform & Agentic Systems
 
-🌐 **[View Portfolio](https://umarsmith.github.io)**
+🌐 **[View Portfolio](https://umasmith.github.io)**
 
 ---
 
